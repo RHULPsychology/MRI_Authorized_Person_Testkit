@@ -5,11 +5,11 @@ Here is the list that you would have to complete to become an Authorised Person.
 
  
 
-1)     Safety Test: Written test [Reading list: MRI Local Rules, MHRA Guidance and Risk assessments]. – All attached
+1)     Safety Test: Written test [Reading list: MRI Local Rules, MHRA Guidance and Risk assessments]. 
 
  
 
-2)     Watch Safety Video – I could lend you a DVD
+2)     Watch Safety Video – (find dropbox links in the Safety Video Links file)
 
  
 
